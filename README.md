@@ -1,3 +1,3 @@
 File For Project Nebula Launcher 
 
-[Fortnite launcher.zip](https://github.com/user-attachments/files/18254134/Fortnite.launcher.zip)
+https://public.simplyblk.xyz/9.41.rar
